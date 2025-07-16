@@ -7,7 +7,7 @@ Singapore, we can offer:
 
 - Full autonomy and ownership of problems
 - Flexible work arrangements
-- Compensation based on your market worth, not your employment history
+- Compensation based on assessed level of performance, not last drawn salary or years of experience
 
 Visit [careers.open.gov.sg](https://careers.open.gov.sg) for available roles.
 
